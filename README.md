@@ -1,1 +1,1 @@
-# reciclaje-pet
+# reciclaje-plastico
